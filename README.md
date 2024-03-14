@@ -6,7 +6,7 @@
 - email: baidenamissahjoel@gmail.com
 - X: just_baiden
 - snapchat: is.khobby
-- 😄 Pronouns: Mr.Baiden-Amissah
+- 😄 Pronouns: he  or him
 - ⚡ Fun fact: A stubborn Chelsea fan
   
 
